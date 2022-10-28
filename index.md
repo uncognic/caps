@@ -3,9 +3,9 @@ Hey there! I like computers. I program in batch (if you call that a programming 
 
 # **Socials**
 
-- Discord: kryxzz#5044
+- Discord: uncognic#5044
 
-- GitHub: [kryxzz](https://github.com/kryxzz)
+- GitHub: [uncognic](https://github.com/kryxzz)
 
 - E-mail: 5881660@gmail.com
 
