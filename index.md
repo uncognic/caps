@@ -9,7 +9,7 @@ Hey there! I like computers. I program in batch (if you call that a programming 
 
 - E-mail: 5881660@gmail.com
 
-- Twitter: [@kryxzz_](https://twitter.com/kryxzz_)
+
 
 # Links
 
